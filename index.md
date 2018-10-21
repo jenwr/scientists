@@ -22,6 +22,12 @@ Several books and biographies that I have read this year reveal an excitement ab
 
 ### Kelvin
 
+### Marconi
+
+### Hertz
+
+### Volta
+
 
 
 ## Books
@@ -33,3 +39,4 @@ Several books and biographies that I have read this year reveal an excitement ab
 ### The Wizard, the Life and Times of Nicola Tesla. I am listening to the audio book, and so I am missing key pieces of detail. That said, the book intersects with the historical novel mentioned above and so a reread will be in order. Note: the history of Serbia/Croatia in the beginning of the book is very interesting. 
 
 ### The Wright Brothers, by David McCullough - Their achievement came in 1903, but their research happened during the same exciting times. 
+
